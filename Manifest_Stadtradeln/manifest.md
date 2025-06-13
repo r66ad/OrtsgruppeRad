@@ -24,6 +24,8 @@ Wir lehnen es ab, unter dem Deckmantel einer Klimakampagne für ein Verkehrssyst
 Bis dahin werden wir nicht teilnehmen. Wir werden uns weiter engagieren – aber nicht für ein System, das uns ignoriert und gefährdet.
 
 Mit freundlichen Grüßen 
+
 **Die ADFC-Ortsgruppe Wittlich/Mittelmosel**
+
 Wittlich, 13. Juni 2025  
 
