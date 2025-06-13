@@ -9,9 +9,9 @@ wir, die Mitglieder der ADFC-Ortsgruppe Wittlich/Mittelmosel, werden in diesem J
 Wir lehnen es ab, unter dem Deckmantel einer Klimakampagne für ein Verkehrssystem in die Pedale zu treten, das uns tagtäglich gefährdet. Die Infrastruktur im Kreis Bernkastel-Wittlich ist – aus unserer Sicht – für den Radverkehr in weiten Teilen **rücksichtslos, gefährlich und völlig aus der Zeit gefallen:**
 
 - Radwege enden im Nichts oder werden zu Parkplätzen.
-- Viele Kreisstraßen sind für Radfahrer lebensgefährlich – ohne Seitenstreifen, mit aggressivem Autoverkehr.
-- Sichere Schulwege, Alltagsverbindungen und touristische Strecken? Fehlanzeige.
-- Von echten Maßnahmen zur Verkehrswende ist bisher nichts zu spüren.
+- Viele Kreisstraßen sind für Radfahrer lebensgefährlich – ohne Seitenstreifen und Geschwindigkeitsreduzierung, mit aggressivem Autoverkehr.
+- Keine sicheren Schulwege, Alltagsverbindungen und touristische Strecken oder Fahrradstrassen.
+- Von echten Maßnahmen zur nachhaltigen Verkehrswende ist bisher nichts zu spüren.
 
 **Wir sind keine lebenden Zielscheiben**, keine bunten Punkte in einer PR-Kampagne und keine Statistikeinträge für politische Untätigkeit.
 
