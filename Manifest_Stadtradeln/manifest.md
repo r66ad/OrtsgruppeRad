@@ -17,10 +17,11 @@ Wir lehnen es ab, unter dem Deckmantel einer Klimakampagne für ein Verkehrssyst
 
 
 Die zynischen Argumente von Kreisverwaltung, Polizei und Landesbetrieb Mobilität (LBM) sind ernüchternd:
-	•	„Es ist ja noch nie etwas passiert“ – Muss erst jemand sterben? Oder besser zwei?
-	•	„Die Strecke wird kaum von Radfahrern genutzt“ – Natürlich nicht! Wenn die Infrastruktur so gefährlich ist, dass man lieber ins Auto steigt, ist das ein Skandal, kein Argument gegen Verbesserungen.
-	•	„Gesetze verbieten Veränderungen“ – Als ob Gesetze Naturgesetze wären, denen man hilflos ausgeliefert ist. Gesetze kann man ändern, wenn der politische Wille da ist.
-	•	„Wir stellen ein Banner auf“ – Ist das der ganze Kompromiss für mehr Sicherheit?
+
+- „Es ist ja noch nie etwas passiert“ – Muss erst jemand sterben? Oder besser zwei?
+- „Die Strecke wird kaum von Radfahrern genutzt“ – Natürlich nicht! Wenn die Infrastruktur so gefährlich ist, dass man lieber ins Auto steigt, ist das ein Skandal, kein Argument gegen Verbesserungen.
+- „Gesetze verbieten Veränderungen“ – Als ob Gesetze Naturgesetze wären, denen man hilflos ausgeliefert ist. Gesetze kann man ändern, wenn der politische Wille da ist.
+- „Wir stellen ein Banner auf“ – Ist das der ganze Kompromiss für mehr Sicherheit?
 
 
 **Wir sind keine lebenden Zielscheiben** für überholende Autos, ohne Sicherheitsabstand, ohne Rücksicht, ohne Konsequenzen für die Verursacher, keine bunten Punkte in einer PR-Kampagne und keine Statistikeinträge für politische Untätigkeit.
