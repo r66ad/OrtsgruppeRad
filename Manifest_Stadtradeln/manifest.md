@@ -1,21 +1,21 @@
-Manifest der ADFC-Ortsgruppe Wittlich/Mittelmosel
+**Manifest der ADFC-Ortsgruppe Wittlich/Mittelmosel**
 
-Keine Teilnahme am Stadtradeln 2025 – Kein Radverkehr auf eigene Gefahr
+**Keine Teilnahme am Stadtradeln 2025 – Kein Radverkehr auf eigene Gefahr**
 
 Sehr geehrter Herr Landrat Hackethal,
 
-wir, die Mitglieder der ADFC-Ortsgruppe Wittlich/Mittelmosel, werden in diesem Jahr nicht am Stadtradeln teilnehmen.
+wir, die Mitglieder der ADFC-Ortsgruppe Wittlich/Mittelmosel, werden in diesem Jahr **nicht am Stadtradeln teilnehmen.**
 
-Wir lehnen es ab, unter dem Deckmantel einer Klimakampagne für ein Verkehrssystem in die Pedale zu treten, das uns tagtäglich gefährdet. Die Infrastruktur im Kreis Bernkastel-Wittlich ist – aus unserer Sicht – für den Radverkehr in weiten Teilen rücksichtslos, gefährlich und völlig aus der Zeit gefallen:
+Wir lehnen es ab, unter dem Deckmantel einer Klimakampagne für ein Verkehrssystem in die Pedale zu treten, das uns tagtäglich gefährdet. Die Infrastruktur im Kreis Bernkastel-Wittlich ist – aus unserer Sicht – für den Radverkehr in weiten Teilen **rücksichtslos, gefährlich und völlig aus der Zeit gefallen:**
 
 - Radwege enden im Nichts oder werden zu Parkplätzen.
 - Viele Kreisstraßen sind für Radfahrer lebensgefährlich – ohne Seitenstreifen, mit aggressivem Autoverkehr.
 - Sichere Schulwege, Alltagsverbindungen und touristische Strecken? Fehlanzeige.
 - Von echten Maßnahmen zur Verkehrswende ist bisher nichts zu spüren.
 
-Wir sind keine lebenden Zielscheiben, keine bunten Punkte in einer PR-Kampagne und keine Statistikeinträge für politische Untätigkeit.
+**Wir sind keine lebenden Zielscheiben**, keine bunten Punkte in einer PR-Kampagne und keine Statistikeinträge für politische Untätigkeit.
 
-Wir wollen echte Veränderungen. Und wir fordern Sie und die Kreisverwaltung auf:
+**Wir wollen echte Veränderungen.** Und wir fordern Sie und die Kreisverwaltung auf:
 - den Zustand der bestehenden Radwege systematisch zu erfassen und öffentlich zu machen,
 - Lückenschlüsse und sichere Überlandverbindungen zu priorisieren,
 - gefährliche Abschnitte (z. B. K94, K65) kurzfristig zu entschärfen,
@@ -24,6 +24,6 @@ Wir wollen echte Veränderungen. Und wir fordern Sie und die Kreisverwaltung auf
 Bis dahin werden wir nicht teilnehmen. Wir werden uns weiter engagieren – aber nicht für ein System, das uns ignoriert und gefährdet.
 
 Mit freundlichen Grüßen 
-Die ADFC-Ortsgruppe Wittlich/Mittelmosel
+**Die ADFC-Ortsgruppe Wittlich/Mittelmosel**
 Wittlich, 13. Juni 2025  
 
